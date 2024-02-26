@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Rajesh
-- 👀 I’m interested in health, Renewable energy, enterterment ind and golf,  to name a few!
-- 💞️ I’m looking to collaborate on number of project, includeing a Physics project will computerized sensory to create oxygen from water.
+- 👋 Hi, I’m Rajesh23z
+- 👀 I’m interested in AI, digital health, Renewable energy, Physics, enterterment ind and golf, to name a few!
+- 💞️ I’m am working on coupe of AI projects and Ditital games. Looking to collaborate on AI, AI digital Films, Physics projects, Quantem computers, Human mind, and Cold fusion.
 - 📫 How to reach me rajesh@monkeymagiccloud.com, or on here.
 
 <!---
